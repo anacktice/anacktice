@@ -37,5 +37,5 @@ __My Latest Work:-__ https://www.storecrafter.co.in/
  
 <h2>Contact me</h2>
  - Email: Anacktice@proton.me <br>
- - Discord: Kanpuria Dalal#9320 <br>
+ - Discord: @anacktice <br>
  - Instagram: @anacktice.exe <br>
